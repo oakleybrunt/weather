@@ -2,7 +2,7 @@
 
 ## Today
 
-Cloudy with a chance of meatballs.
+Cloudy with a chance of Sun.
 
 ## Tomorrow
 
